@@ -6,6 +6,6 @@ Repositório da turma 2C
 
 sejam todos bem vindos 
 
-![](https://tenor.com/bRbSD.gif)
+![](https://tenor.com/tVx2hS7waaG.gif)
 
 contato email 📧 00001087941362sp@al.educacao.sp.gov.br
