@@ -6,6 +6,6 @@ Repositório da turma 2C
 
 sejam todos bem vindos 
 
-![](https://tenor.com/tVx2hS7waaG.gif)
+![](https://tenor.com/pt-BR/view/cute-penguin-hey-welcome-happy-to-see-you-gif-21217905937909850)
 
 contato email 📧 00001087941362sp@al.educacao.sp.gov.br
